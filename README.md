@@ -1,6 +1,6 @@
 👋 Hi, I'm Rethabile Mmokwa
 
-Known as Bile - *Bile* is prounouced Beelay 😄 
+Known as Bile - *Bile* is prounouced Bee-le 😄 
 Its the "tail" of My name Retha~Bile
 
 
